@@ -7,6 +7,151 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 02:13
+---
+
+## FarsiVOA — post 218021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺رسانه‌های آمریکایی: ترامپ روز شنبه با مشاوران ارشد امنیت ملی خود درباره ایران جلسه گذاشت؛ سه‌شنبه نیز جلسه دیگری دارد
+
+▪️سایت خبری آکسیوس روز یک‌شنبه ۲۷ اردیبهشت گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا قرار است روز سه‌شنبه در «اتاق وضعیت» کاخ سفید با مشاوران ارشد امنیت ملی خود جلسه‌ای درباره ایران برگزار کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150967.html
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 389657
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389657_1779057797.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389656
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389656_1779057797.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A27
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389655
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389655_1779057798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389654
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389654_1779057799.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان اگه پولتون زیادی کرده و نمیدونین باهاش چیکار کنین، کاخ گوتیک امیردشت با قیمت مفتِ 1500 میلیارد به فروش میرسه، حتما بخرین.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389653
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389653_1779057800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زنجیره بی‌پایانِ پیروزی‌های آخوند برشمشیر 🤭🧩
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389652
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389652_1779057801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه تخمش از ممه‌های دخترت بزرگتره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389651
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389651_1779057802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما چپولایی که کل شجاعتتون این بوده تو خونه‌های تیمی، زناتون رو با هم ضربدری عوض بدل کنید، جلوی این نسل از خایه حرف نزنید مادرجنده‌های زن و دختر خراب!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389650
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389650_1779057803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکس جدید بیلی ایلیش :)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏بدتر از خود مقوله‌ی vpn خریدن اینه که حتما باید vpn داشته باشم که بتونم دوباره بخرم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تخم ما از ممه دخترت بزرگتره
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 02:03
 ---
 
