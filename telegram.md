@@ -7,6 +7,239 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 23:43
+---
+
+## WithYashar — post 11517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای فارس : ترامپ با آزادسازی دارایی‌های بلوکه شده مخالفت کرد!
+@withyashar
+</div>
+
+## WithYashar — post 11516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای پدافند در اهواز
+@withyashar
+</div>
+
+## mwarmonitor — post 9228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇸🇦«وزارت دفاع عربستان سعودی مدعی شد که ۳ فروند پهپاد را رهگیری کرده است.» @mwarmonitor
+</div>
+
+## mwarmonitor — post 9227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇸🇦«وزارت دفاع عربستان سعودی مدعی شد که ۳ فروند پهپاد را رهگیری کرده است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9226
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در عربستان سعودی
+</div>
+
+## FoxNewsTwitter — post 341860
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341860_1779048791.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Marco Rubio draws a direct line between Christianity and the founding of America during a speech at the “Rededicate 250” prayer event in Washington, D.C.
+
+Before the Christian West, Rubio says, most civilizations viewed history as an endless cycle “only to end up back where it began.”
+
+“But our faith calls us outwards into the limitless darkness of the unknown,” he says. "It tells us to go forth and preach the gospel to the world as a witness unto all nations unto the ends of the Earth."
+
+"From that command, came America."
+</div>
+
+## pm_afshaa — post 90921
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90921_1779048793.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: احتمال لغو تمامی پروازها از آمریکا به اسرائیل تا سال 2027.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6053
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6053_1779048794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Sun, 17 May 2026 20:04:04 UTC Major General Turki Al-Malki, spokesperson for the Ministry of Defense, announced that on the morning of Sunday, May 17, 2026, 3 drones were intercepted and destroyed after entering the KSA's airspace from…
+</div>
+
+## Shin_Persian — post 6052
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 17 May 2026 20:04:04 UTC
+
+Major General Turki Al-Malki, spokesperson for the Ministry of Defense, announced that on the morning of Sunday, May 17, 2026, 3 drones were intercepted and destroyed after entering the KSA's airspace from Iraqi territory.
+
+Al-Malki affirmed that the "Ministry of Defense reserves the right to respond at the appropriate time and place, and will take and implement all necessary operational measures to counter any attempted aggression against the Kingdom's sovereignty, security, and the safety of its citizens and residents."
+
+#KSA 🇸🇦
+
+فارسی
+
+سرلشکر ترکی المالکی، سخنگوی وزارت دفاع، اعلام کرد که در صبح روز یکشنبه ۱۷ مه ۲۰۲۶، ۳ فروند پهپاد پس از ورود به حریم هوایی پادشاهی عربستان سعودی (KSA) از خاک عراق، رهگیری و منهدم شدند.
+
+المالکی تأکید کرد که «وزارت دفاع حق پاسخگویی در زمان و مکان مناسب را برای خود محفوظ می‌دارد و تمامی اقدامات عملیاتی لازم را برای مقابله با هرگونه تلاش جهت تجاوز به حاکمیت، امنیت پادشاهی و سلامت شهروندان و مقیمان آن، اتخاذ و اجرا خواهد کرد.»
+
+#KSA 🇸🇦
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105578
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105578_1779048794.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+«صدای فاطمه سپهری باشیم» ـ گزارشگر
+</div>
+
+## FarsiVOA — post 218004
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺رئیس مجلس نمایندگان آمریکا: روشن نیست قدرت در ایران دست چه کسی است؛ «آیت‌الله جدید» علنی دیده نشده است
+
+▪️مایک جانسون، رئیس مجلس نمایندگان آمریکا، روز یکشنبه ۲۷ اردیبهشت در گفت‌وگو با برنامه «فاکس نیوز ساندی» اعلام کرد دولت دونالد ترامپ، رئیس جمهوری ایالات متحده، با تمرکز بر بازگشایی تنگه هرمز و افزایش فشار بر رژیم ایران، تلاش می‌کند ثبات اقتصادی و امنیتی را بازگرداند و قیمت‌های انرژی را کاهش دهد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/fox-news-sunday-mike-johnson-shannon-bream-interview/8150948.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14361
+
+
+
+
+## Persian_Trend_Official — post 14357
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14357_1779048796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرهایی درباره انهدام یک پهپاد آمریکایی در یمن /فارس نیوز
+
+🔹برخی رسانه‌ها با انتشار تصاویری، از انهدام یک فروند پهپاد MQ9 ارتش آمریکا در آسمان استان مارب به دست نیروهای مسلح یمن خبر می‌دهند‌.
+
+🔸نیروهای مسلح یمن هنوز بیانیه‌ای در این باره صادر نکرده است.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20297
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی قلهکی، از اعضای تیم مذاکره‌کننده در پاکستان:
+
+وزیر کشور پاکستان هم آمده است که بگوید یا توافق کنید، یا جنگ می‌شود.
+
+@IranianMinds
+</div>
+
+## alonews — post 120684
+
+<div align="center">
+  <img src="telegram/content/alonews_120684_1779048797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت استثنایی گیگی
+9️⃣
+8️⃣
+1️⃣
+
+تحویل زیر یک دقیقه
+✅
+دارای لینک سابسکریشن جهت دیدن حجم و کنترل مصرف
+✅
+بدون قطعی 
+✅
+بدون محدودیت کاربر و زمان
+✅
+جمینایو چت جی بی تی و... کامل اوکیه با سرورامون
+✅
+
+🏪پشتیبانی کامل
+✅
+شروع فعالیت از سال 2022 
+✅
+پرداخت ریالی
+✅
+
+ضریب و این چیزا ندارن و تا آخرین مگابایت برای پشتیبانیش درختمتیم
+🥂
+
+
+💤این تخفیف فقط تا ۱۲ شب فعاله
+💤
+
+
+
+⭐️ @Napsternetiran_bot
+〰️〰️〰️〰️〰️〰️〰️
+
+
+🔶 @Napsternetvirani
+</div>
+
+## alonews — post 120683
+
+<div align="center">
+  <a href="telegram/content/alonews_120683_1779048797.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 کاتز، وزیر دفاع اسرائیل: به ارتش دستور دادم برای اجرای قانون اعدام تلاش کنن؛ دیگه اونایی که یهودی‌ها رو میکشن قرار نیست تو زندان‌ها راحت بمونن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120682
+
+<div align="center">
+  <a href="telegram/content/alonews_120682_1779048797.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈از دقایقی قبل بنابر گزارشات تایید نشده؛ صدای فعالیت پدافند در اهواز شنیده شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 23:33
 ---
 
