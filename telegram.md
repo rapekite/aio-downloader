@@ -7,6 +7,75 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 22:00
+---
+
+## VahidOOnLine — post 240843
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240843_1779129058.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندسی گراهام، سناتور جمهوری‌خواه، در شبکه ایکس نوشت: «اطمینان کامل دارم که ترامپ به‌خوبی وضعیت ایران را درک می‌کند و در برابر ادامه خودداری جمهوری اسلامی از مذاکره صادقانه، همراه با اقدامات تهاجمی این کشور در تنگه هرمز و سراسر منطقه، مماشات نخواهد کرد.»
+
+او افزود: «یک پاسخ کوتاه اما قاطع می‌تواند مسیر درگیری را به‌درستی تغییر دهد. در مواجهه با جمهوری اسلامی، ضروری است که از موضع قدرت و برتری وارد مذاکره شویم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 337824
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337824_1779129059.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندسی گراهام، سناتور جمهوری‌خواه، در شبکه ایکس نوشت: «اطمینان کامل دارم که ترامپ به‌خوبی وضعیت ایران را درک می‌کند و در برابر ادامه خودداری جمهوری اسلامی از مذاکره صادقانه، همراه با اقدامات تهاجمی این کشور در تنگه هرمز و سراسر منطقه، مماشات نخواهد کرد.»
+
+او افزود: «یک پاسخ کوتاه اما قاطع می‌تواند مسیر درگیری را به‌درستی تغییر دهد. در مواجهه با جمهوری اسلامی، ضروری است که از موضع قدرت و برتری وارد مذاکره شویم.»
+https://iranintl.com/202605181005
+</div>
+
+## alonews — post 120936
+
+<div align="center">
+  <a href="telegram/content/alonews_120936_1779129059.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اگر فرد اشتباهی جانشین من شود، برای آمریکا فاجعه خواهد بود
+
+
+🔴رئیس‌جمهور آمریکا در مصاحبه‌ای که روز دوشنبه منتشر شد، گفت اگر پس از پایان دوره ریاست‌جمهوری‌اش «فرد اشتباهی» قدرت را به دست بگیرد، این موضوع برای ایالات متحده فاجعه‌بار خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120935
+
+<div align="center">
+  <a href="telegram/content/alonews_120935_1779129059.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون اجرایی رئیس‌جمهور: بر اساس نظرسنجی مرکز ریاست‌جمهوری، ۷۰ درصد مردم نسبت به محدودیت اینترنت ناراضی هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120934
+
+<div align="center">
+  <a href="telegram/content/alonews_120934_1779129060.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سالار آبنوش(ولایتمدار): آمریکا اگه تسلیم نشه باید منتظر موشک‌ها باشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 21:53
 ---
 
