@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 19:33
+---
+
+## WithYashar — post 11676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل از یک منبع نظامی:
+نیروی هوایی آمریکا و اسرائیل تحقیقات خودشون رو برای آماده‌سازی قابلیت‌ها در صورت از سرگیری درگیری‌ها تکمیل کردن.
+
+در حال انجام اقداماتی هستن که اگر لازم شد، بتونن یک حمله خیلی گسترده رو انجام بدن.
+@withyashar
+</div>
+
+## WithYashar — post 11675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه موشتبی خامنه ایی:
+
+استمرار قدرت ایران نسبت مستقیمی با مسئله افزایش جمعیت و فرزندآوری داره
+@withyashar
+چرا اینا فقط فکر کمر به پایینن ؟!!
+</div>
+
+## FoxNewsTwitter — post 341939
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341939_1779206587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Socialist mayor Zohran Mamdani goes after Ronald Reagan over the former president’s warning about big government while teasing New York’s first city-run grocery store.
+
+Mamdani insists that people shouldn’t be scared of the government but should embrace welfare programs instead.
+
+The NYC mayor also saying Americans are more concerned about not being able to feed their families after working all day rather than overreach that could ruin their lives.
+</div>
+
+## pm_afshaa — post 91042
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91042_1779206588.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل از یک منبع نظامی:
+نیروی هوایی آمریکا و اسرائیل تحقیقات خودشون رو برای آماده‌سازی قابلیت‌ها در صورت از سرگیری درگیری‌ها تکمیل کردن.
+
+در حال انجام اقداماتی هستن که اگر لازم شد، بتونن یک حمله خیلی گسترده رو انجام بدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337956
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337956_1779206589.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید: «با قطع اینترنت و به بهانه شرایط جنگی، با اعدام، زندان، بیکاری، سرکوب و احضار، در حال کشتن مردم در خاموشی کامل هستند. ما صدایی نداریم.»
+</div>
+
+## IranIntlTV — post 337955
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337955_1779206590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بررسی‌های ایران اینترنشنال نشان می‌دهد که هشت عضو خانواده زرین قلم، مالکان چند صرافی، با تشکیل یک شبکه پولشویی به سپاه پاسداران در دور زدن تحریم‌ها کمک می‌‌کنند. دستکم سه عضو این خانواده در محله‌های فینچلی و کنری وورف لندن زندگی می‌‌کنند.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## alonews — post 121141
+
+<div align="center">
+  <a href="telegram/content/alonews_121141_1779206592.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈غریب‌آبادی: برای ما تسلیم شدن معنایی ندارد؛ یا پیروز می شویم یا شهید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121140
+
+<div align="center">
+  <a href="telegram/content/alonews_121140_1779206592.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آتلانتیک: دو هواپیمای سوخت‌رسان KC-135 آمریکایی در تاریخ ۱۲ مارس بر فراز عراق با هم برخورد کردند و شش نفر کشته شدند.
+
+
+🔴پنتاگون اعلام کرد هیچ آتش خصمانه‌ای در کار نبوده است.
+
+
+🔴اما گزارش‌های اولیه اطلاعاتی، آتش پدافند هوایی شبه‌نظامیان تحت حمایت ایران را در آن منطقه در آن زمان شناسایی کردند که نشان می‌دهد خلبانان ممکن است اقدام به گریز کرده باشند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 19:23
 ---
 
