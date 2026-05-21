@@ -7,6 +7,100 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 17:23
+---
+
+## WithYashar — post 11845
+
+
+
+
+## WithYashar — post 11844
+
+
+
+
+## IranIntlTV — post 338250
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338250_1779371583.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌زمان با افزایش صف‌های طولانی در پمپ‌بنزین‌ها و نگرانی از کاهش سهمیه سوخت، کاربران رسانه‌های اجتماعی از تشدید فشارهای اقتصادی و اثرات محاصره اقتصادی بر زندگی روزمره مردم نوشته‌اند.
+عادله بورنگ، عضو تحریریه ایران‌اینترنشنال، از واکنش کاربران می‌گوید
+@iranintltv
+</div>
+
+## IranIntlTV — post 338249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال می‌گوید که پیک موتوری است و کل درآمدی که برای یک شیفت داشته را خرج رفع پنچری موتورش کرده است. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## Persian_Trend_Official — post 14595
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14595_1779371586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله پهپادی به مقر احزاب معارض کُرد ایرانی در اربیل
+
+💢رسانه‌ها گزارش می‌دهند یک پهپاد، مقر احزاب کُرد مخالف ایران را در شهر سوران واقع در استان اربیل در اقلیم کردستان عراق هدف قرار داده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157422
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157422_1779371587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دادستانی فدرال آلمان از اعلام جرم علیه یک شهروند دانمارک و یک شهروند افغان، به ظن تلاش برای کمک به برنامه‌ریزی قتل رهبران برجسته نهادهای یهودی در آلمان خبر می‌دهد.
+
+🔸این دو نفر متهم هستند که این اقدامات را از سوی سازمان‌های امنیتی جمهوری اسلامی انجام داده‌اند.
+هویت کامل متهمان اعلام نشده و تنها با نام‌های علی س. (شهروند دانمارک) و تواب م. (شهروند افغان) معرفی شده‌اند.
+
+🔸بیانیه دادستانی آلمان می‌گوید علی س. با نیروی قدس سپاه پاسداران ارتباط تنگاتنگی داشته و اوایل سال گذشته میلادی، ماموریت داشته که در مورد یوزف شوستر، رئیس شورای مرکزی یهودیان آلمان و فولکر بک رئیس جامعه آلمانی- اسرائیلی اطلاعاتی جمع‌آوری کند.
+
+🔸او همچنین مأمور شده بود که در مورد دو اغدیه‌فروشی یهودی در برلین هم اطلاعات جمع‌آوری کند.
+
+🔸به گفته دادستانی فدرال، هدف از این اقدامات، تسهیل برنامه‌ریزی برای قتل این رهبران یهودی و به‌آتش کشیدن کسب‌وکارهای یهودیان در آلمان بوده است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157421
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157421_1779371588.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## IranianMinds — post 20489
+
+
+
+
+## alonews — post 121565
+
+<div align="center">
+  <a href="telegram/content/alonews_121565_1779371589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 یک نظرسنجی از فاکس نیوز نشان می‌دهد که 60% آمریکایی‌ها اکنون با اقدام نظامی علیه ایران مخالف هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 17:12
 ---
 
