@@ -21,13 +21,10 @@ on:
         required: true
         type: choice
         options:
-          - split_push
-          - release
-        default: split_push
-      upload_to_drive:                                 # ← NEW INPUT
-        description: 'Upload files to Google Drive instead (folder: github-actions)'
-        type: boolean
-        default: false
+          - repo          # split_push (99MB parts) + push to repo
+          - release       # GitHub Release (unsplit, split if >1950MB)
+          - drive         # Google Drive (folder: github-actions)
+        default: repo
 
 permissions:
   contents: write
@@ -67,14 +64,12 @@ jobs:
         id: process
         run: |
           BUNDLE_ALL="${{ github.event.inputs.bundle_all }}"
-          UPLOAD_METHOD="${{ github.event.inputs.upload_method }}"
-          UPLOAD_TO_DRIVE="${{ github.event.inputs.upload_to_drive }}"
+          UPLOAD_METHOD_INPUT="${{ inputs.upload_method }}"
 
-          # Determine ZIP strategy: Drive uses unsplit (like release) unless >1950 MiB
-          if [ "$UPLOAD_TO_DRIVE" = "true" ] || [ "$UPLOAD_METHOD" = "release" ]; then
-            METHOD="release"
-          else
+          if [ "$UPLOAD_METHOD_INPUT" = "repo" ]; then
             METHOD="split_push"
+          else
+            METHOD="release"
           fi
 
           OUTPUT_DIR="mega-nz"
@@ -205,7 +200,7 @@ jobs:
       # GOOGLE DRIVE UPLOAD
       # ────────────────────────────────────────────────────────
       - name: "Upload to Google Drive"
-        if: inputs.upload_to_drive == 'true'
+        if: inputs.upload_method == 'drive'
         env:
           CLIENT_ID:     ${{ secrets.GOOGLE_CLIENT_ID }}
           CLIENT_SECRET: ${{ secrets.GOOGLE_CLIENT_SECRET }}
@@ -282,7 +277,7 @@ jobs:
       # EXISTING UPLOAD METHODS (skipped if Drive is chosen)
       # ────────────────────────────────────────────────────────
       - name: Upload to repository (split_push method)
-        if: ${{ inputs.upload_to_drive == 'false' && github.event.inputs.upload_method == 'split_push' }}
+        if: ${{ inputs.upload_method == 'repo' }}
         env:
           BRANCH: ${{ github.ref_name }}
         run: |
@@ -313,7 +308,7 @@ jobs:
           done
 
       - name: Create Release and upload assets (release method)
-        if: ${{ inputs.upload_to_drive == 'false' && github.event.inputs.upload_method == 'release' }}
+        if: ${{ inputs.upload_method == 'release' }}
         env:
           GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
