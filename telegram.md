@@ -7,6 +7,286 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 01:23
+---
+
+## VahidOOnLine — post 241408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ محمد مخبر، مشاور رهبر جمهوری اسلامی، پنجشنبه‌شب ۳۱ اردیبهشت‌ماه در گفتگو با صدا و سیما گفت که از زمان مرگ ابراهیم رئیسی، رئیس دولت سیزدهم، تاکنون هیچ‌گاه باور نکرده است سقوط هلیکوپتر او یک «حادثه عادی» بوده باشد.
+
+مخبر گفت این موضوع را پیش‌تر با علی خامنه‌ای نیز مطرح کرده و در دیداری با او گفته است: «ما الان مستندی نداریم که ترور انجام گرفته باشد، اما هرچه برای من توضیح دادند که قضیه عادی بوده، بر ابهاماتم اضافه شده است.»
+
+او افزود: «هیچ‌وقت تا الان قبول نکردم که این فقط یک حادثه و سقوط عادی بوده است.» مجری برنامه نیز از او پرسید که آیا همچنان همین باور را دارد که مخبر پاسخ داد: «بله.»
+
+هلیکوپتر حامل ابراهیم رئیسی، رئیس دولت سیزدهم، حسین امیرعبداللهیان، وزیر خارجه، و هیئت همراه آنان عصر یکشنبه ۳۰ اردیبهشت ۱۴۰۳ در مسیر بازگشت به تبریز در شمال‌غرب ایران ناپدید شد. ساعاتی بعد، لاشه هلیکوپتر و اجساد سرنشینان پیدا شد. محمدعلی آل هاشم، امام جمعه تبریز، مالک رحمتی، استاندار آذربایجان شرقی، خلبان، کمک‌خلبان، اعضای تیم پرواز و چند عضو تیم حفاظت نیز در این حادثه کشته شدند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241407
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241407_1779400389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، با انتشار پیامی در شبکه «تروث سوشال» اعلام کرد ایالات متحده ۵ هزار نیروی اضافی به لهستان اعزام خواهد کرد.
+او نوشت: «در پی برگزاری موفق انتخابات و انتخاب کارول ناوروتسکی به‌عنوان رئیس‌جمهوری لهستان؛ فردی که با افتخار از او حمایت کردم و با توجه به روابط ما با او، خوشحال هستم اعلام کنم ایالات متحده ۵ هزار نیروی اضافی به لهستان اعزام خواهد کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241406
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241406_1779400390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه آمریکا، در پستی در ایکس نوشت ترامپ تاکید کرده است بدون توانایی غنی‌سازی، مسیری برای دستیابی به سلاح هسته‌ای وجود ندارد و به دلیل سابقه «تقلب» جمهوری اسلامی، تهران نباید اجازه ادامه غنی‌سازی را داشته باشد.
+او با هشدار درباره اینکه جمهوری اسلامی می‌تواند از حدود ۴۴۰ کیلوگرم اورانیوم با غنای بالا برای ساخت «بمب کثیف» یا غنی‌سازی بیشتر تا سطح ۹۰ درصد برای تولید سلاح هسته‌ای استفاده کند، گفت ترامپ همچنان تاکید دارد که جمهوری اسلامی نباید اجازه حفظ این مواد را داشته باشد.
+او همچنین جلوگیری از ادامه حمایت جمهوری اسلامی از گروه‌های نیابتی را از خطوط قرمز مذاکرات دانست و نوشت: «زمان همه‌چیز را مشخص خواهد کرد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام: ترامپ تاکید کرده است بدون توانایی غنی‌سازی، مسیری برای دستیابی به سلاح هسته‌ای وجود ندارد و به دلیل سابقه «تقلب» جمهوری اسلامی، تهران نباید اجازه ادامه غنی‌سازی را داشته باشد.
+این موضوع، همراه با هدف اعلام‌شده برای اطمینان از اینکه ایران نتواند از گروه‌های نیابتی تروریستی حمایت کند، از نظر من خطوط قرمز مذاکرات هستند و دلایل محکمی هم دارند.
+زمان مشخص خواهد کرد
+@withyashar
+</div>
+
+## WithYashar — post 11891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات هوایی سنگین اسرائیل به جنوب لبنان
+منابع لبنانی از آغاز دور دیگر حملات جنوبی لبنان خبر دادند.
+تا این لحظه شهرک‌های زوطر، کفرا و شوکین هدف این حملات قرار گرفته‌اند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342078
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342078_1779400391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump’s 250-foot triumphal arch just cleared a key hurdle.
+
+The U.S. Commission of Fine Arts has approved the design, advancing a massive monument planned for an entrance to Washington, D.C.
+
+The arch will feature a Lady Liberty-style figure holding a torch, gilded eagles, gold lettering reading “One Nation Under God” and “Liberty and Justice for All,” and a public observation deck with 360-degree views, though the four lions originally planned for the base have been removed.
+
+📸: U.S. Commission of Fine Arts
+</div>
+
+## IranIntlTV — post 338301
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338301_1779400392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه آمریکا، در پستی در ایکس نوشت ترامپ تاکید کرده است بدون توانایی غنی‌سازی، مسیری برای دستیابی به سلاح هسته‌ای وجود ندارد و به دلیل سابقه «تقلب» جمهوری اسلامی، تهران نباید اجازه ادامه غنی‌سازی را داشته باشد.
+او با هشدار درباره اینکه جمهوری اسلامی می‌تواند از حدود ۴۴۰ کیلوگرم اورانیوم با غنای بالا برای ساخت «بمب کثیف» یا غنی‌سازی بیشتر تا سطح ۹۰ درصد برای تولید سلاح هسته‌ای استفاده کند، گفت ترامپ همچنان تاکید دارد که جمهوری اسلامی نباید اجازه حفظ این مواد را داشته باشد.
+او همچنین جلوگیری از ادامه حمایت جمهوری اسلامی از گروه‌های نیابتی را از خطوط قرمز مذاکرات دانست و نوشت: «زمان همه‌چیز را مشخص خواهد کرد.»
+
+https://iranintl.com/202605211326
+</div>
+
+## Shin_Persian — post 6130
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6130_1779400393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 21 May 2026 21:44:53 UTC
+
+Blast sound in Qeshm, Hormozgan Province, #Iran
+Unclear reason.
+
+فارسی
+
+صدای انفجار در قشم، استان هرمزگان، #Iran
+دلیل آن نامشخص است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218334
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218334_1779400393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مارکو روبیو، وزیر امورخارجه آمریکا، روز پنج‌شنبه به خبرنگاران گفت اصرار جمهوری اسلامی به دریافت عوارض از کشتی‌ها برای عبور از تنگه هرمز توافق با رژیم ایران را غیرممکن خواهد کرد. آقای روبیو گفت هیچ‌کس در جهان طرفدار چنین سیستم غیرقانونی نیست و گرفتن عوارض غیرقابل قبول است.
+@FarsiVOA
+</div>
+
+## BBCPersian — post 281727
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نیروی دریایی سپاه پاسداران: ۳۱ کشتی با هماهنگی ما طی شبانه‌روز گذشته از تنگه هرمز عبور کرد
+
+🔻روابط عمومی نیروی دریای سپاه پاسداران، روز پنجشنبه ۳۱ اردیبهشت اعلام کرد که طی شبانه‌روز گذشته به «۳۱ کشتی» اجازه دادند که از تنگه‌هرمز عبور کنند.
+
+در این بیانیه که خبرگزاری ایرنا آن را منتشر کرده است،‌ آمده: «طی شبانه روز گذشته ۳۱ فروند کشتی اعم از نفتکش، کانتینر بر و سایر کشتی‌های تجاری با هماهنگی و تامین امنیت نیروی دریایی سپاه از تنگه هرمز عبور کردند.»
+
+نیروی دریایی سپاه پاسداران،‌ در این بیانیه ارتش آمریکا را «تروریستی» خواند و آن را به «ایجاد ناامنی بی‌سابقه» در خلیج فارس و تنگه هرمز متهم کرد.
+
+سپاه پاسداران می‌گوید که تلاش کرده مسیر مشخص و ایمنی برای عبور و استمرار تجارت جهانی ایجاد کند.
+
+این در حالی است که آمریکا هم می‌گوید که با محاصره بنادر ایران،‌ هیچ کشتی نمی‌تواند دربنادر ایران پهلو بگیرد یا بنادر را ترک کند.
+
+https://bbc.in/3RT3jfU
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389919
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389919_1779400394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389918
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389918_1779400395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A31
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389917
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389917_1779400395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+</div>
+
+## Dirty_Kids — post 389913
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389913_1779400395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قسمت‌های دیگری از چالش دوربین‌به‌کون که توسط روس‌ها وایرال شده این چالش باعث خشکی کمر آقایون در سراسر دنیا شده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389912
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389912_1779400396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله با شوکر به دانش‌آموزان!!!
+چرا؟؟ چون اعتراض دارن به امتحان حضوری.
+وحشت از مردم داره جرررتون میده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از وقتی که مجبورم به طور مداوم کانفیگ بخرم تازه دارم درک میکنم خرید ملزومات حجاب اجباری (لباس بلند و شال و مقنعه و...) چقدر تخمیه. یعنی عملا داری پول میدی که محدودتر زندگی کنی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایوان گونچاروف توی کتاب اُبلوموف یه جمله داره که وقتی خوندمش چندبار با خودم تکرار کردم:
+"‌در غرب، رویاها برای تبدیل شدن به حقیقت بنا می‌شوند‌‌‌ و‌‌ در‌ شرق رویاها برای فرار از حقیقت!"
+به همین دلیل جغرافیا خودِ سرنوشته!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389909
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389909_1779400398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا چپ از شاه متنفر بودند!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121678
+
+<div align="center">
+  <a href="telegram/content/alonews_121678_1779400400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حرمله در صدا و سیما: دلم واستون میسوزه ولی دوستون دارم، اما این‌بار بزارین فراخوان بدن ببینیم کت تن کیه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121677
+
+<div align="center">
+  <a href="telegram/content/alonews_121677_1779400401.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امروز ۱ خرداد تولد ترامپ هست
+
+
+🔴بفرست برا خردادی‌های مودی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 01:13
 ---
 
