@@ -78,7 +78,7 @@ jobs:
             url="$(echo "$url" | xargs)"
             [ -z "$url" ] && continue
             echo "→ MHTML: $url"
-            python .github/scripts/website-capture-mhtml.py --url "$url"
+            python .github/script/website-capture-mhtml.py --url "$url"
           done <<< "${{ github.event.inputs.urls }}"
 
       - name: "Process all URLs – PDF"
