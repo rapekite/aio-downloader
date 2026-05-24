@@ -7,6 +7,29 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 00:12
+---
+
+## WithYashar — post 12374
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : حجاج امسال دو بار حاجی میشن 😃
+</div>
+
+## alonews — post 122444
+
+<div align="center">
+  <a href="telegram/content/alonews_122444_1779655340.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم به نقل از یک منبع مطلع: تا این لحظه تفاهم نهایی حاصل نشده است و چالش در بعضی بندها ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 00:03
 ---
 
@@ -5028,8 +5051,6 @@ https://studio.youtube.com/video/bQJFCVV8hCg/livestreaming
 
 ✅@AloNews
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
