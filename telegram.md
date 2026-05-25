@@ -7,6 +7,163 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 01:52
+---
+
+## VahidOOnLine — post 242192
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242192_1779747770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت: «اورانیوم غنی‌شده (غبار هسته‌ای!) یا فورا به آمریکا تحویل داده خواهد شد تا در ایالات‌متحده نابود شود، یا ترجیحا با همکاری و هماهنگی با جمهوری اسلامی ایران، در همان محل یا در مکانی قابل قبول دیگر نابود خواهد شد.»
+ترامپ گفت در صورت نابودی اورانیوم غنی‌شده در مکانی غیر از آمریکا، «کمیسیون انرژی اتمی»، یا نهاد معادل آن، به عنوان شاهد بر این فرایند نظارت خواهد داشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی:
+
+«یکی از نماینده‌های پارلمان حتی بهم گفت فکر نمی‌کنه ایرانی‌ها آماده دموکراسی باشن.
+ایرانی‌ها فقط آماده دموکراسی نیستن؛ ۴۰ هزار نفر جونشون رو برای رسیدن بهش دادن و من نمی‌ذارم این فداکاری بی‌نتیجه بمونه.
+چه اروپا کنار ما بایسته چه نه، چه خبرنگارها کارشون رو درست انجام بدن چه نه، چه سیاستمدارها شجاعت اقدام داشته باشن چه نه، من برای مردمم و کشورم می‌جنگم.
+حتی اگر مجبور باشیم تنهایی این مسیر رو بریم، می‌جنگیم تا ایران آزاد بشه.»
+@withyashar
+</div>
+
+## WithYashar — post 12498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشها میگن که اپ های ، روبیکا و بله از دسترس خارج شدند
+@withyashar
+</div>
+
+## mwarmonitor — post 9723
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«چرا این مهم است: به نظر می‌رسد در اینجا نوعی نرمش در موضع آمریکا درباره روش‌های از بین بردن ذخایر اورانیوم غنی‌شده وجود دارد و نوعی نزدیک شدن به موضع ایران دیده می‌شود.» باراک راوید @mwarmonitor
+</div>
+
+## IranIntlTV — post 338996
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338996_1779747770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت: «اورانیوم غنی‌شده (غبار هسته‌ای!) یا فورا به آمریکا تحویل داده خواهد شد تا در ایالات‌متحده نابود شود، یا ترجیحا با همکاری و هماهنگی با جمهوری اسلامی ایران، در همان محل یا در مکانی قابل قبول دیگر نابود خواهد شد.»
+ترامپ گفت در صورت نابودی اورانیوم غنی‌شده در مکانی غیر از آمریکا، «کمیسیون انرژی اتمی»، یا نهاد معادل آن، به عنوان شاهد بر این فرایند نظارت خواهد داشت.
+https://iranintl.com/202605259577
+</div>
+
+## IranIntlTV — post 338995
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338995_1779747771.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «بسیاری از اختیارات پزشکیان گرفته شده او عملا نقش تعیین‌کننده‌ای در تصمیم‌گیری‌ها ندارد. پزشکیان عملا به تدارکاتچی سپاه تبدیل شده و حتی در جایگاه‌هایی مثل شورای عالی امنیت ملی هم بیشتر به ماشین امضای تصمیمات سپاه مثل جنایت دی‌ماه تبدیل شده است.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/81sH1UrOPAM?feature=share
+</div>
+
+## Persian_Trend_Official — post 15019
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15019_1779747773.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱‏۶۱ سال پیش، الی کوهن قهرمان افسانه‌ای  مردم اسرائیل در سوریه اعدام شد.
+
+اطلاعاتی که وی از طریق نفوذ در حکومت سوریه به دست آورد، نقش حیاتی در پیروزی اسرائیل در جنگ شش روزه داشت.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 390202
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390202_1779747773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلمی که به تازگی از اعتراضات دی ماه منتشر شده، یه پسر جوون به عنوان تک تیرانداز به مردم شلیک میکنه و مامانش کنارش داره آمار میده که کیو بزنه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حیف شد شهید تنگسیری نیست. اگه الان بود، حسابی خط و نشون میکشید و دوباره بگا میرفت
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390200
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تا این لحظه ۴ سپاهی کشته شدن.
+خوبه ولی کافی نیست. بجنبین که خیلی عقبیم بخدا.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122698
+
+<div align="center">
+  <img src="telegram/content/alonews_122698_1779747774.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داش فرامرز کف قیمت ایران وصلت می‌کنه حاجی 🤙
+
+فی ۱ گیگ = ۱۵۰ت
+فی ۲ گیگ = ۳۰۰ت
+فی ۳ گیگ = ۴۵۰ت
+🧡فی ۵ گیگ = ۷۵۰ت🧡
+فی ۱۰ گیگ = قابلتونو نداره ۱٫۵۰۰
+
+ایکی‌ثانیه تو جیباته جون داداش👇
+@VPNFaraMarzBot @VPNFaraMarzBot
+@VPNFaraMarzBot @VPNFaraMarzBot
+</div>
+
+## alonews — post 122697
+
+<div align="center">
+  <a href="telegram/content/alonews_122697_1779747775.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پدافند هوایی ایران سه پهپاد آمریکایی را در آسمان بندرعباس سرنگون کرد، از جمله یک پهپاد ام‌ویو-۹ای "ریپر".
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 01:42
 ---
 
