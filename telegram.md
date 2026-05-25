@@ -7,6 +7,164 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 23:13
+---
+
+## VahidOOnLine — post 242171
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242171_1779738190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری رویترز به نقل از روزنامه ژاپنی نیکی گزارش داد، جمهوری اسلامی ایران ۳۰ روز پس از دستیابی به توافق با آمریکا، تنگه هرمز را بازگشایی خواهد کرد.
+بر اساس این گزارش، ایران در بازه ۳۰ روزه پس از توافق، روند پاکسازی مین‌ها از تنگه هرمز را آغاز می‌کند.
+نیکی به نقل از یک منبع آگاه نوشت پس از اجرای توافق، کشتی‌های همه کشورها همانند دوره پیش از تعطیلی عملی تنگه، امکان عبور آزادانه و امن از هرمز را خواهند داشت.
+این گزارش می‌افزاید آتش‌بسی که آمریکا و ایران در فرودین ماه گذشته بر سر آن توافق کرده‌اند، برای ۶۰ روز دیگر تمدید خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12457
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ تمام عیار ۳ @withyashar
+</div>
+
+## mwarmonitor — post 9710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع به الجزیره گفته‌اند که میانجی‌گری قطر با موفقیت به ایالات متحده و ایران کمک کرده است تا درباره دارایی‌های مسدودشده به یک توافق دست پیدا کنند.
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 4958
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4958_1779738191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕐
+🔴 چشم اسفندیار یا پاشنه آشیل، همون نقطه‌ضعف پنهانیه که حتی قدرتمندترین حریف‌ها رو هم می‌تونه با کمترین هزینه از پا دربیاره 🏹
+
+جمهوری اسلامی هم در طول سال‌ها پاشنه‌آشیل‌های زیادی داشته؛ از حجاب اجباری تا نیروهای نیابتی‌ای که قرار بود نقطه‌قوت رژیم باشن، اما به‌مرور تبدیل شدن به حفره‌های امنیتی و سیاسی ⚠️
+البته گفتن از پاشنه‌آشیل‌های قدیمی و کشف‌شده خیلی آسون‌تر از پیدا کردن نقطه‌ضعف‌های امروز رژیمه.
+به نظر شما امروز پاشنه‌آشیل آخوندها کجاست؟😉
+
+#تمام_رخ
+@DEJradio
+</div>
+
+## DEJradio — post 4957
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4957_1779738193.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شامگاه دوشنبه با انتشار ویدئویی اعلام کرد جنگ جاری اسرائیل با حزب‌الله متوقف نخواهد شد و حملات خود علیه این گروه تروریستی و نیابتی رژیم ایران در لبنان را تشدید خواهد کرد.
+پیش از این گفته بود که یکی از مفاد توافق احتمالی ترامپ با رژیم ایران اتمام جنگ در تمام جبهه ها از جمله لبنان خواهد بود.
+
+#مذاکرات #اسرائیل #لبنان
+@DEJradio
+</div>
+
+## DEJradio — post 4956
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4956_1779738194.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢
+🔺 اعتراض یک شهروند به گرانی و کمبود بنزین: هرچی کار می‌کنیم پول بنزین میدیم.
+
+#بنزین #صدای_شما
+@DEJradio
+</div>
+
+## alonews — post 122661
+
+<div align="center">
+  <a href="telegram/content/alonews_122661_1779738196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل اعلام کرد موج گسترده‌ای از حملات هوایی در قالب عملیات “تیرهای آتش” را در بیروت انجام خواهد داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122660
+
+<div align="center">
+  <a href="telegram/content/alonews_122660_1779738197.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب دموکرات: امروز از قهرمانان آمریکایی که در جنگ ترامپ با ایران فداکاری نهایی کردند، تجلیل می‌کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122657
+
+<div align="center">
+  <a href="telegram/content/alonews_122657_1779738198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک حمله هوایی اسرائیل به اردوگاه پناهندگان نوسیرات در مرکز نوار غزه چند لحظه پیش انجام شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122656
+
+<div align="center">
+  <a href="telegram/content/alonews_122656_1779738198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پاکستان دعوت ترامپ برای عادی‌سازی روابط با اسرائیل را رد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122655
+
+<div align="center">
+  <a href="telegram/content/alonews_122655_1779738199.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈۵ پیش شرطی که ابتدا آمریکا باید انجام دهد
+
+
+🔴رئیس کمیسیون امنیت ملی خبر داد:
+
+
+🔴۱. خاتمه جنگ در همه جبهه‌ها؛ مخصوصا در لبنان؛
+
+
+🔴۲.محاصره دریایی آمریکا علیه ایران باید برچیده شود؛
+
+
+🔴۳. پذیرش حاکمیت ایران بر تنگه هرمز؛
+اگر محاصره ایران برچیده شود، تردد کشتی‌های غیر نظامی برقرار خواهد شد؛
+
+
+🔴۴.تعلیق تحریم های ایران طی ۳۰ روز؛ از جمله تحریم نفت
+
+
+🔴۵. آزادسازی منابع بلوکه شده ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 23:03
 ---
 
