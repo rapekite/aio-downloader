@@ -7,6 +7,369 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 16:44
+---
+
+## VahidOOnLine — post 242283
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242283_1779801242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️براساس گزارش خبرگزاری رویترز به نقل از رسانه «ریا نووستی»، سرگی ریابکوف، معاون وزیر امور خارجه روسیه، اعلام کرد که سرگی لاوروف در جریان گفتگوی تلفنی روز دوشنبه خود با مارکو روبیو، همتای آمریکایی‌اش، دلایل تغییر موضع مسکو در قبال حملات به کی‌یف را تشریح کرده است؛ این اقدام پس از آن صورت گرفت که روسیه اعلام کرد در پاسخ به حمله پهپادی تعمدی اوکراین به یک خوابگاه دانشجویی در لوهانسک تحت کنترل روسیه که دست‌کم ۲۱ کشته برجای گذاشت، قصد دارد حملات سیستماتیکی را علیه اهداف مرتبط با ارتش اوکراین و مراکز تصمیم‌گیری در کی‌یف آغاز کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12558
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12558_1779801242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش نت بلاکس، بعد از 88 روز و 2093ساعت خاموشی تمام عیار اینترنت، همکنون نزدیک به 35% اینترنت ایران وصل شده.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342262
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342262_1779801243.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Radical Senate candidate Graham Platner railed against CEOs and tried to win over working class voters while rallying with Bernie Sanders during the Vermont senator's "Fighting Oligarchy Tour."
+
+Platner took aim at wealthy Americans as well as those he says are part of the "Epstein class."
+
+“I believe that we should not be settling for scraps that they throw to us from the table, where they are dining with the Epstein class.”
+
+“I believe that in our country, the voices of working people are far more important than the voices of those who merely have money.”
+</div>
+
+## FoxNewsTwitter — post 342261
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342261_1779801245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NBA star Kyle Kuzma reveals his massive bet on Spencer Pratt to be the next mayor of Los Angeles.
+
+The former Lakers champion revealed he placed a $36,000 bet on the longtime reality TV star to win the Los Angeles mayoral race — a wager that could result in a whopping payout of more than $130,000.
+
+Kuzma defended his support on social media, saying “LA has been cooked since Covid,” as Pratt continues to build momentum with outsider-style attacks on crime, homelessness and city leadership.
+</div>
+
+## pm_afshaa — post 91539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت بلاکس:34 درصد مردم به اینترنت دسترسی پیدا کردن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ با انتشار مطلبی بر صلح از مسیر قدرت تأکید کرد
+
+دونالد ترامپ، رئیس‌ جمهوری آمریکا روز سه‌شنبه در شبکۀ تروث‌سوشال تصویری از خود را با شعار «صلح از راه قدرت» منتشر کرد.
+سیاست صلح از راه قدرت، یک دکترین‌ اصلی در دولت ترامپ در قبال جمهوری اسلامی به شمار می‌رود.
+بر اساس این رویکرد، دولت آمریکا برای رسیدن به صلح، توان نظامی جمهوری اسلامی در حوزه‌های موشکی، دریایی و هسته‌ای را تضعیف می‌کند.
+ترامپ پیش‌تر اعلام کرده واشنگتن یا به یک توافق بزرگ و معنادار با تهران دست می‌یابد، یا هیچ توافقی در کار نیست.
+
+#خبر #دز #ترامپ
+@DEJradio
+</div>
+
+## kianmeli1 — post 87684
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87684_1779801246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بعد از ۸۸ روز و حدود ۲۰۹۳ ساعت قطعی و انزوای شدید از اینترنت جهانی، اتصال اینترنت در ایران تا حدی برگشته
+- ولی هنوز معلوم نیست این وضعیت پایدار بمونه یا نه
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87682
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87682_1779801246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جان‌باختن علیرضا بیرانوند در بازداشت؛ ابهام در علت مرگ شاعر معترض اهل ایذه
+
+#علیرضا_بیرانوند، شاعر معترض و فعال فرهنگی ۲۵ ساله اهل ایذه، در تاریخ ۱۵ اردیبهشت ۱۴۰۵ در تهران بازداشت شد و بنا بر گزارش‌های منتشرشده، در دوران بازداشت جان باخته است.
+نهادهای رسمی علت مرگ او را «مسمومیت» اعلام کرده‌اند، اما فعالان مدنی و منابع مستقل، نسبت به این روایت ابراز تردید کرده و مرگ او را مشکوک و مرتبط با رفتار نهادهای امنیتی می‌دانند.
+علیرضا بیرانوند پیش‌تر نیز در جریان اعتراضات سال‌های ۱۳۹۶ و ۱۴۰۱ سابقه بازداشت داشته و به‌عنوان شاعری معترض و فعال فرهنگی شناخته می‌شد.
+ابهام در روند بازداشت، نحوه جان‌باختن و نبود شفافیت درباره جزئیات این پرونده، نگرانی‌ها و پرسش‌های بسیاری را در افکار عمومی ایجاد کرده است.
+
+ 🎥 ویدیو: گوشه‌ای از مراسم خاکسپاری زندانی #علیرضا_بیرانوند
+
+همسر او، لیلا فتحی، که او هم از شاعران جوان ایذه است، ضمن انتشار این ویدئو نوشته: علیرضا هنوز باور نکردم...
+ https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87681
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87681_1779801248.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران پس از ماه‌ها محدودیت شدید و قطعی اینترنت، دسترسی به اینترنت بین‌المللی را برای مشاغل و کاربران خانگی وای‌فای برقرار کرد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 339101
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339101_1779801249.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از اعلام خبر صدور حکم اعدام برای چهار متهم پرونده اکباتان توسط دادگاه انقلاب تهران، موجی از واکنش‌ها در شبکه‌های اجتماعی شکل گرفته است. کاربران با اشاره به تناقض در احکام و تغییرات اخیر در روند رسیدگی، درباره شدت برخوردهای قضایی در این پرونده ابراز نگرانی کردند.
+آیه دریس، عضو تحریریه ایران‌اینترنشنال، به واکنش کاربران می‌پردازد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6242
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Wed, 11 Mar 2026 18:40:56 UTC If you're out of Iran you may easily install @PsiphonConduit and provide uncensored internet to Iranian people. It's easily installable on your phone, computer and server. Please do. …
+</div>
+
+## Shin_Persian — post 6241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Wed, 11 Mar 2026 18:40:56 UTC
+
+If you're out of Iran you may easily install @PsiphonConduit and provide uncensored internet to Iranian people. It's easily installable on your phone, computer and server.
+Please do.
+https://conduit.psiphon.ca/en/
+Windows:
+https://apps.microsoft.com/detail/9p89sj33m3jp?utm_source=conduit_site&hl=en-US&gl=TR
+Android:
+https://play.google.com/store/apps/details?id=ca.psiphon.conduit
+MacOS:
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+اگر خارج از ایران هستید، می‌توانید به راحتی @PsiphonConduit را نصب کرده و اینترنت بدون سانسور را در اختیار مردم ایران قرار دهید. این برنامه به سادگی بر روی گوشی، کامپیوتر و سرور شما قابل نصب است.
+لطفاً این کار را انجام دهید.
+https://conduit.psiphon.ca/en/
+ویندوز:
+https://apps.microsoft.com/detail/9p89sj33m3jp?utm_source=conduit_site&hl=en-US&gl=TR
+اندروید:
+https://play.google.com/store/apps/details?id=ca.psiphon.conduit
+مک‌بوک:
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6240
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6240_1779801251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+NetBlocks ✓ @netblocks Tue, 26 May 2026 12:54:34 UTC 📈 Confirmed: Live metrics show a partial restoration to internet connectivity in #Iran on day 88, after 2093 hours of near-total isolation from international networks, the longest nationwide internet shutdown…
+</div>
+
+## Shin_Persian — post 6239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+NetBlocks ✓ @netblocks
+Tue, 26 May 2026 12:54:34 UTC
+
+📈 Confirmed: Live metrics show a partial restoration to internet connectivity in #Iran on day 88, after 2093 hours of near-total isolation from international networks, the longest nationwide internet shutdown in modern history. It is unclear if the restoration will be sustained.
+
+فارسی
+
+📈 تایید شد: معیارهای لحظه‌ای نشان می‌دهند که در روز ۸۸ام، پس از ۲۰۹۳ ساعت انزوای تقریباً کامل از شبکه‌های بین‌المللی، اتصال به اینترنت در #ایران به طور جزئی برقرار شده است؛ این طولانی‌ترین قطعی سراسری اینترنت در تاریخ مدرن است. هنوز مشخص نیست که آیا این برقراری اتصال پایدار خواهد بود یا خیر.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15077
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15077_1779801251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 نت‌بلاکس تأیید کرد که اینترنت ایران به حدود ۳۴٪ اتصال بازگشته است.
+
+▪️این در روز ۸۸ پس از ۲۰۹۳ ساعت انزوای تقریباً کامل جهانی رخ داده و طولانی‌ترین قطعی سراسری اینترنت در تاریخ مدرن به شمار می‌رود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157575
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157575_1779801252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸نهاد پایش وضعیت اینترنت در جهان،نت‌بلاکس، اعلام کرد داده‌های زنده شبکه نشان می‌دهد بخشی از دسترسی به اینترنت در ایران در هشتاد و هشتمین روز قطع گسترده و نزدیک به «انزوای کامل» از شبکه جهانی، دوباره برقرار شده است.
+
+🔸نت‌بلاکس در شبکه ایکس نوشت این اختلال که بیش از ۲۰۹۳ ساعت ادامه داشت، طولانی‌ترین قطع سراسری اینترنت در تاریخ مدرن است.
+
+🔸این نهاد همچنین اعلام کرد هنوز مشخص نیست بازگشت دسترسی به اینترنت پایدار خواهد ماند یا نه.
+
+🔸 مقام‌های دولت مسعود پزشکیان از آغاز روند اتصال کامل به اینترنت تا ۲۴ ساعت آینده خبر داده‌اند با این حال دیوان عدالت اداری اعلام کرد دستور توقف اجرای مصوبه تشکیل «ستاد ویژه ساماندهی و راهبری فضای مجازی کشور» را صادر کرده است.
+
+🔸اینترنت در ایران، به‌رغم سانسور و اعمال فیلترینگ گسترده، از نهم اسفند پارسال همزمان با شروع جنگ آمریکا و اسرائیل با ایران و به بهانهٔ آن به‌طور کامل قطع شد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20812
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20812_1779801252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نت بلاکس:
+
+ُسطح دسترسی به اینترنت در ایران در حال افزایش هست.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390233
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اینترنت دیتاسنترها در حال باز شدنه
+نت بلاکس هم تایید کرده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390232
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390232_1779801253.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت بله، روبیکا و vpn فروشا:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390231
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390231_1779801253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق تحقیقات جدید، اسپنک زدن به پارتنرتون می‌تونه باعث افزایش آرامش، شادی و کاهش استرس بشه 
+🍑
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390230
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390230_1779801254.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این میزان شادی دیگه یکم زیاده روی نیست تو این وضعیت!؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390229
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390229_1779801255.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 «جیمیل | Gmail» 
+🔍 روی اکثر اینترنتا در دسترس قرار گرفته.
+
+گوگل پلی
+🕹 هم روی بعضی مودم‌های خونگی در دسترس قرار گرفته و بدون فیلترشکن بالا میاد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122813
+
+<div align="center">
+  <a href="telegram/content/alonews_122813_1779801256.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فعلا پروکسیا و یک سری VPN ها روی مخابرات،شاتل و بقیه مودم ها وصل شدند،نت موبایل هنوز باز نشده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122812
+
+<div align="center">
+  <a href="telegram/content/alonews_122812_1779801256.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت کسب و کارهای اینترنتی بعد وصل شدن اینترنت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122811
+
+<div align="center">
+  <a href="telegram/content/alonews_122811_1779801256.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تکلیف اونایی که پرو خریدن چی میشه؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122810
+
+<div align="center">
+  <a href="telegram/content/alonews_122810_1779801256.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بعد از ۸۸ روز و حدود ۲۰۹۳ ساعت قطعی و انزوای شدید از اینترنت جهانی، اتصال اینترنت تو ایران تا حدی برگشته
+- ولی هنوز معلوم نیست این وضعیت پایدار بمونه یا نه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 16:33
 ---
 
