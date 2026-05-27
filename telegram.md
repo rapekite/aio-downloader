@@ -7,6 +7,89 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 01:33
+---
+
+## VahidOOnLine — post 242488
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242488_1779919386.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم عزیزی، رئیس کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی، در واکنش به اظهارات اخیر دونالد ترامپ تاکید کرد که جمهوری اسلامی با الفاظی‌های رئیس‌جمهور آمریکا، هرگز از خطوط قرمز خود از جمله «حق غنی‌سازی و حفظ اورانیوم غنی‌شده»، «مدیریت تنگه هرمز» و «لغو تحریم‌ها» عقب‌نشینی نخواهد کرد.
+عزیزی با انتشار پیامی در شبکه اجتماعی اکس نوشت: «دیگر همه می‌دانند ترامپ برای نجات خود از این بن‌بست راهبردی، یک روز از ابزار تهدید استفاده می‌کند و روز دیگر برای توافق التماس می‌کند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342327
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342327_1779919386.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Former AG Pam Bondi has reportedly been diagnosed with thyroid cancer.
+
+The diagnosis came shortly after Bondi wrapped up her time as attorney general. She reportedly underwent treatment and is recovering.
+
+Katie Miller, who is married to White House Deputy Chief of Staff Stephen Miller, reacted to the news: “Pam has been quietly kicking cancer’s ass the last few weeks.”
+</div>
+
+## Persian_Trend_Official — post 15147
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/2HyaIyBB-ko?feature=share
+</div>
+
+## IranianMinds — post 20905
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20905" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص تمام اینترنت ها
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282218
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282218" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پادکست برنامه شصت دقیقه چهارشنبه ۶ خرداد ۱۴۰۵
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۳ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+
+@BBCPersian
+</div>
+
+## alonews — post 123185
+
+<div align="center">
+  <a href="telegram/content/alonews_123185_1779919388.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خسارت حدودی قطع اینترنت در ۸۸روز
+
+605,440,000,000,000تومان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 01:22
 ---
 
