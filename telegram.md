@@ -7,6 +7,65 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 04:42
+---
+
+## VahidOOnLine — post 242370
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وال استریت ژورنال با اشاره به حمله دوشنبه‌شب آمریکا به قایق‌های سپاه و کشته شدن چند عضو سپاه می‌نویسد که حکومت ایران این حمله‌ها را نادیده گرفت تا مذاکرات با آمریکا ادامه پیدا کند چرا که به شدت به منابع مالی نیاز دارد که امیدوار است از طریق مذاکرات به آنها دسترسی پیدا کند. به گزارش این روزنامه آمریکایی، ایران نشان داد که حملات نظامی مذاکرات را متوقف نخواهد کرد. محمدباقر قالیباف، مذاکره‌کننده حکومت ایران که روز دوشنبه به قطر رفته بود، روز سه‌شنبه پس از این حملات همچنان در دوحه سرگرم گفتگو بود. مقام‌ها گفتند تهران اعلام کشته‌شدن چند عضو سپاه پاسداران در حمله آمریکا را به تعویق انداخت تا روند مذاکرات آسیب نبیند. این در حالی است که میانجی‌ها، از جمله پاکستان، قطر و مصر، در تلاش‌اند دو طرف را برای کاهش اختلافات به هم نزدیک کنند. به گفته مقام‌های جمهوری اسلامی و کشورهای میانجی، یکی از محورهای اصلی گفت‌وگوهای قالیباف در قطر، آزادسازی ۲۴ میلیارد دلار ـ معادل یک‌چهارم دارایی‌های مسدودشده ایران در خارج ـ بوده است. این مقام‌ها گفتند ایران به توافقی نزدیک شده تا نیمی از این مبلغ در مرحله اولیه آزاد شود
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342291
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342291_1779844336.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump ally Ken Paxton defeats Sen. John Cornyn in Texas’ bitter Republican primary war.
+
+Trump targeted Cornyn as "VERY disloyal" as he backed Paxton, a MAGA firebrand, in the final days of the runoff campaign.
+
+Paxton now faces off against state Rep. James Talarico — a rising star in the Democratic Party — in the general election in a race that is among a handful that may decide if the Republicans hold their slim 53-47 majority in the Senate.
+</div>
+
+## FoxNewsTwitter — post 342290
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342290_1779844336.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: One of Congress’ most aggressive Trump critics just lost his seat in Texas.
+
+Rep. Al Green, the Democrat who repeatedly pushed to impeach President Trump, was defeated in a heated primary race against fellow Texas Rep. Christian Menefee.
+
+Green built a national profile during Trump’s first term by relentlessly criticizing the president and repeatedly interrupting his State of the Union speeches.
+
+Now, after years in office, one of Trump’s loudest congressional opponents is out.
+</div>
+
+## FoxNewsTwitter — post 342289
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342289_1779844337.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“NYPD! NYPD!” chants rang through a crowd outside Gracie Mansion on Tuesday night as protesters thanked New York police officers for keeping the city safe.
+
+The crowd was gathered out NYC Mayor Mamdani's residence to call for Governor Hochul to remove him from office, citing his perceived failure to address rising radicalization and antisemitism.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 04:32
 ---
 
