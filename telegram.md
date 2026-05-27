@@ -7,6 +7,148 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 13:42
+---
+
+## VahidOOnLine — post 242401
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242401_1779876749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از گذشت حدود سه ماه از کشته شدن علی خامنه‌ای، رهبر جمهوری اسلامی، و اعضای خانواده او در حمله مشترک اسرائیل و آمریکا، رسانه‌های ایران اعلام کردند مراسم ختم خانواده علی و مجتبی خامنه‌ای هفته جاری در مصلای عبدالعظیم حسنی در شهر ری برگزار می‌شود.
+
+بر اساس اعلامیه منتشرشده از سوی خانواده رهبر جمهوری اسلامی، این مراسم برای بشری حسینی خامنه‌ای، دختر علی خامنه‌ای، مصباح‌الهدی باقری، همسر بشری حسینی خامنه‌ای، زهرا حداد عادل، همسر مجتبی خامنه‌ای، و زهرا محمدی گلپایگانی، نوه علی خامنه‌ای، برگزار خواهد شد.
+
+علی خامنه‌ای نهم اسفند‌ماه به همراه بخشی از خانواده و همراهانش در حملات مشترک اسرائیل و آمریکا کشته شد. با وجود گذشت سه ماه، هنوز مراسم تشییع جنازه او برگزار نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان نزدیک مجتمع صنایع فولاد مبارکه @withyashar
+</div>
+
+## mwarmonitor — post 9796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 سوالی دارید دایرکت جواب میدم
+</div>
+
+## IranIntlTV — post 339218
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339218_1779876749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از گذشت حدود سه ماه از کشته شدن علی خامنه‌ای، رهبر جمهوری اسلامی، و اعضای خانواده او در حمله مشترک اسرائیل و آمریکا، رسانه‌های ایران اعلام کردند مراسم ختم خانواده علی و مجتبی خامنه‌ای هفته جاری در مصلای عبدالعظیم حسنی در شهر ری برگزار می‌شود.
+
+بر اساس اعلامیه منتشرشده از سوی خانواده رهبر جمهوری اسلامی، این مراسم برای بشری حسینی خامنه‌ای، دختر علی خامنه‌ای، مصباح‌الهدی باقری، همسر بشری حسینی خامنه‌ای، زهرا حداد عادل، همسر مجتبی خامنه‌ای، و زهرا محمدی گلپایگانی، نوه علی خامنه‌ای، برگزار خواهد شد.
+
+علی خامنه‌ای نهم اسفند‌ماه به همراه بخشی از خانواده و همراهانش در حملات مشترک اسرائیل و آمریکا کشته شد. با وجود گذشت سه ماه، هنوز مراسم تشییع جنازه او برگزار نشده است.
+https://iranintl.com/202605273113
+</div>
+
+## IranIntlTV — post 339217
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339217_1779876750.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاربران به ایران‌اینترنشنال گزارش دادند که پس از حدود سه ماه قطع سراسری، دسترسی به اینترنت بین‌المللی در ایران به‌تدریج و با سرعت محدود برقرار شده است. آن‌ها با اشاره به آسیب به کسب‌وکارهای آنلاین، این وضعیت را عامل فشار اقتصادی دانسته و اینترنت را حق طبیعی خود توصیف کرده‌اند.
+@iranintltv
+</div>
+
+## FarsiVOA — post 218787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺کره جنوبی تهران را عامل حمله به کشتی خود دانست؛ سفیر تهران احضار می‌شود
+
+▪️کره جنوبی قصد دارد سفیر جمهوری اسلامی در سئول را در اعتراض به حمله به کشتی «اچ‌ام‌ام نامو» احضار کند؛ کشتی باری تحت بهره‌برداری شرکت کره‌ای اچ‌ام‌ام که اوایل ماه مه در نزدیکی تنگه هرمز هدف قرار گرفت.
+
+▪️شبکه کی‌بی‌اس کره جنوبی روز چهارشنبه گزارش داد دولت سئول اکنون تهران را در این حمله دخیل می‌داند و برای احضار سفیر تهران برنامه‌ریزی کرده است.
+
+▪️دونالد ترامپ بلافاصله پس از حادثه گفته بود که جمهوری اسلامی به کشتی کره‌ای «شلیک کرده» و از سئول خواست به تلاش‌های دریایی تحت رهبری آمریکا برای تأمین امنیت عبور کشتی‌ها در تنگه هرمز بپیوندد.
+
+▪️جمهوری اسلامی پیشتر هرگونه نقش در این حادثه را رد کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154430.html
+</div>
+
+## Persian_Trend_Official — post 15117
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15117_1779876751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه‌ ترور محمد عوده و فرماندهان شاخه نظامی حماس
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20865
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20865_1779876753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید کاخ سفید :
+مامویت سادست؛ صلح از طریق قدرت
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20864
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20864_1779876753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت تجمع های حکومتی :
+
+@IranianMinds
+</div>
+
+## alonews — post 123021
+
+<div align="center">
+  <a href="telegram/content/alonews_123021_1779876754.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 رسانه I24 NEWS: نیروهای دفاعی اسرائیل (IDF) و فرماندهی مرکزی ارتش آمریکا (سنتکام) در حالت آماده‌باش بالا باقی مانده‌اند، در شرایطی که احتمال شکست مذاکرات میان واشنگتن و تهران و صدور دستور اقدام نظامی از سوی رئیس‌جمهور دونالد ترامپ وجود دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123020
+
+<div align="center">
+  <a href="telegram/content/alonews_123020_1779876754.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈با تصاویر ماهواره‌ای سنتینل-۲ ناو آبی‌خاکی تریپولی آمریکا رو تو دریای عرب دیده شده
+
+
+🔴 الانم با اسکورت یه ناوشکن داره حرکت می‌کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 13:32
 ---
 
