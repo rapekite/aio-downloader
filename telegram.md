@@ -7,6 +7,328 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 15:43
+---
+
+## VahidOOnLine — post 242412
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242412_1779884016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی و مذاکره کننده ارشد جمهوری اسلامی در مذاکرات با آمریکا، در پیامی به مناسبت عید قربان به روسای مجالس کشورهای اسلامی نوشت:‌ «همکاری برای قو ی‌شدن بدون دخالت خارجی، نقش مؤثری در حل بحران‌های منطقه‌ای دارد.»
+
+این پیام در حالی صادر می‌شود که همزمان با ادامه مذاکرات میان تهران و واشنگتن برای پایان جنگ، کشورهای اسلامی منطقه می‌گویند برای بازگردندان ثبات و آرامش به منطقه تمام تلاش خود را به کار بسته‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242411
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242411_1779884017.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سازمان هوانوردی و فضا ایالات متحده (ناسا)، روز سه‌شنبه پنجم خرداد جزئیات جدیدی از برنامه استقرار یک پایگاه فضائی دائم در کره ماه را اعلام کرد.
+
+مدیران این سازمان فدرال اعلام کردند برنامه ساخت این پایگاه از سه سال دیگر آغاز خواهد شد و به شرکت‌هایی که بتوانند در کار ساخت و ارسال خودروها و دیگر وسایل حمل و نقل به ماه کمک کنند، پاداش خواهند داد.
+
+جرد ایزاکمن، مدیر ناسا در یک نشست مطبوعاتی در واشنگتن گفت قرار است در مرحله اول فرودگر (ماه نشین)‌ «بلو اوریجین مارک وان اندیورنس» (Blue Origin Mark One Endurance) محموله‌های متعددی را به نقطه تماس در قطب جنوب ماه منتقل کند.‌
+
+در ادامه مرحله اول، ربات‌ها
+ماموریت‌های سریعی را «بررسی منطقه، آزمایش فناوری‌ها و آماده‌سازی برای عملیات روی سطح ماه» آغاز خواهند کرد.
+
+به گفته مدیران ناسا،  مرحله دوم با انتقال وسایل حمل‌ونقل،  تا سال ۲۰۲۹ طول می‌کشد و پس از آن ناسا شروع به ساخت زیرساخت‌های نیمه دائمی خواهد کرد و مرحله ۳ با هدف دستیابی به حضور پایدار روی کره ماه انجام خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12674
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12674_1779884021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواپیمای سوخت‌رسانی جدید نیروی هوایی اسرائیل، KC-46A Pegasus "Gideon" (301)، اندکی پیش در اسرائیل فرود آمد و ایال زمیر، رئیس ستاد کل ارتش اسرائیل، در مراسم استقبال حضور داشت. این هواپیما اولین فروند از شش فروند سفارش داده شده است و امکان سفارش دو فروند دیگر نیز وجود دارد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342296
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342296_1779884022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump taking a victory lap after Ken Paxton’s GOP Senate primary win in Texas after his endorsement and taking aim at Democrats in the Lone Star State.
+
+“Congratulations to Ken Paxton on such a tremendous win."
+
+“His opponent, Alfred E. Neuman, may be the worst TEXAS candidate I have ever seen. A strong Open Borders advocate, he is WEAK ON CRIME, believes there are 6 genders, is insulting to Jesus Christ, will never support the Military, was a big Mask Wearer until recently, and is a Vegan who dislikes meat."
+</div>
+
+## DEJradio — post 5029
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5029_1779884023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺احضار سفیر تهران در سئول؛ جمهوری اسلامی مسئول حمله به کشتی کره‌ای شناخته شد
+
+کره جنوبی اعلام کرد سفیر جمهوری اسلامی را در اعتراض به حمله به یک کشتی کره‌ای در تنگۀ هرمز احضار می‌کند.
+سئول پس از چند هفته بررسی اعلام کرد به احتمال بسیار قوی، یک موشک ساخت جمهوری اسلامی عامل حمله به کشتی اچ‌ام‌ام نامو، بود.
+پارک یون‌جو، معاون وزیر امور خارجۀ کرۀ جنوبی، گفت تحلیل‌های فنی نشان می‌دهد پرتابۀ استفاده‌شده نسخه‌ای از موشک «نور» بود.
+بنا بر داده‌ها روی برخی از قطعات موشک نیز نشانه‌هایی از یک تولیدکنندۀ ایرانی دیده شد.
+این کشتی باری کره‌ای در ۱۴ اردیبهشت امسال هدف حمله قرار گرفت.
+به گفته مقام‌های کره‌ای، یکی از موشک‌ها درحدود هفت متر در بدنۀ کشتی نفوذ کرده بود.
+
+#خبر #دژ #کره_جنوبی #تنگه_هرمز
+@DEJradio
+</div>
+
+## FarsiVOA — post 218796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺انتقال انرژی از خلیج فارس به اروپا؛ طرح اسرائیل برای کم‌رنگ کردن اهرم هرمز
+
+▪️الی کوهن، وزیر انرژی اسرائیل، می‌گوید تل‌آویو در حال بررسی طرح‌هایی برای ایجاد مسیرهای تازه انتقال انرژی از شرق به غرب است؛ طرح‌هایی که هدف آنها کاهش اثر تهدیدهای جمهوری اسلامی علیه مسیرهای تجاری، به‌ویژه تنگه هرمز، عنوان شده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8154436.html/?nocach=1
+</div>
+
+## FarsiVOA — post 218795
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218795_1779884023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل پیش از دور تازه حملات علیه مواضع حزب‌الله، به ساکنان پنج شهرک و روستا در جنوب لبنان هشدار تخلیه داد.
+
+بر اساس اعلام ارتش اسرائیل، ساکنان کفار حونه، عرمتی، ملیخ، جرجوع و حومین الفوقا باید دست‌کم یک کیلومتر از محل زندگی خود دور شوند.
+
+سخنگوی عربی ارتش اسرائیل مدعی شد این اقدام در واکنش به «نقض توافق آتش‌بس از سوی حزب‌الله» انجام می‌شود و ارتش قصد آسیب زدن به غیرنظامیان را ندارد.
+
+این هشدار در ادامه موج تازه حملات اسرائیل در جنوب لبنان صادر شد. تایمز اسرائیل گزارش داد ارتش اسرائیل امروز بار دیگر زیرساخت‌های حزب‌الله را هدف قرار داده و دلیل آن را افزایش حملات پهپادی حزب‌الله به نیروهای اسرائیلی و مناطق شمالی اسرائیل اعلام کرده است.
+
+آتش‌بس ۱۶ آوریل در روزهای اخیر به‌شدت شکننده شده است. رویترز گزارش داد اسرائیل روز سه‌شنبه بیش از ۱۲۰ حمله در جنوب و شرق لبنان انجام داد که دست‌کم ۳۱ کشته و ۴۰ زخمی برجا گذاشت.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125199
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 مبارزه با راست افراطی در قفس ورزش‌های رزمی (رینگ)
+
+راست افراطی در آلمان بیش از پیش از ورزش‌های رزمی ترکیبی برای جذب نیرو استفاده می‌کند. حالا یک باشگاه در شهر کمنیتس در شرق آلمان با ایجاد فضایی فراگیر و بدون تبعیض، تلاش می‌کند در برابر این روند بایستد.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/IsX9PiIhoW4?feature=share
+</div>
+
+## Persian_Trend_Official — post 15121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌲 — 🇮🇱 رئیس ستاد کل ارتش اسرائیل، ایال زامیر: برنامه هسته‌ای ایران سال‌ها به عقب افتاده است.
+
+🌲 — 🇮🇱 رئیس ستاد کل ارتش اسرائیل: رهبری ایران مردم خود را به فاجعه‌ای کشانده است که هنوز به طور کامل آن را درک نکرده‌اند، و در حالی که بیشتر توانایی‌های نظامی‌شان نابود شده، در حال تعقیب هستند.
+</div>
+
+## Persian_Trend_Official — post 15120
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15120_1779884024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱
+🇱🇧
+🇱🇧
+🔹 هشدار فوری به ساکنان شهرها و روستاهای زیر در لبنان صادر شد: کفر حونا، آرامتا، ملیخ، جرجوع و حومین الفوقا، با دستور تخلیه فوری و حرکت حداقل ۱۰۰۰ متر به سمت مناطق باز.
+</div>
+
+## IranianMinds — post 20870
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20870_1779884025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت امروز اینترنت بین الملل ایران از نگاه نت بلاکس
+
+اینترنت هنوز به وضعیت ۱۰۰ درصدی بازنگشته
+
+با اینکه نشون دهنده ی بازگشت نزدیک به ۷۰ الی ۸۰ درصد رو نشون میده
+ولی تو زمان قطعی راحت تر کانکت میشد اینترنت
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رویترز: جنگ ایران برندگان و بازندگان تازه‌ای را در بازارهای جهانی ایجاد کرده است
+
+🔻سه ماه پس از آغاز جنگ ایران، تداوم قیمت بالای نفت سیاست‌گذاران را با نگرانی‌های تازه درباره تورم روبه‌رو کرده و کاهش ارزش ارزها نیز برای برخی کشورهای آسیایی دردسرساز شده است.
+
+به‌گزارش رویترز اما این درگیری در عین حال به رشد برخی دارایی‌ها، به‌ویژه نفت، و تقویت جایگاه دلار به‌عنوان یک دارایی امن کمک کرده است.
+
+رویترز در گزارش خود آورده است: افزایش حدود ۴۰ درصدی قیمت نفت، چشم‌انداز تورم و نرخ بهره را دگرگون کرده است. در بازار واقعی، قیمت نفت خام به‌مراتب بالاتر از ۱۰۰ دلار در هر بشکه قرار دارد و در مقطعی در اوایل آوریل تقریبا دو برابر سطح پیش از جنگ بود.
+
+این گزارش حاکیست که آزادسازی بی‌سابقه ۴۰۰ میلیون بشکه نفت از ذخایر راهبردی اقتصادهای بزرگ، همراه با تلاش معامله‌گران برای یافتن منابع جایگزین، تا حدی به جبران کمبود عرضه کمک کرده است. با این حال، فشار بر نظام جهانی انرژی رو به افزایش است.
+
+https://bbc.in/4dLHuWT
+@BBCPersian
+</div>
+
+## BBCPersian — post 282184
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282184_1779884026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت اطلاعات ایران در بیانیه‌ای گفته است که «دشمن اکنون با توقف جنگ سخت، بر هفت محور اصلی جنگ ترکیبی» متمرکز شده و هشدارهایی به شهروندان داده است.
+
+در این اطلاعیه آمده است: «جنگ ترکیبی شامل تشدید فشارهای اقتصادی، انجام تحریکات قومی و مذهبی، اعزام مزدوران گروهکی، ترور و خرابکاری، قاچاق انواع سلاح و ابزار ارتباطی غیرقانونی، جنگ رسانه‌ای و حملات سایبری متمرکز شده است.»
+
+این هشدار یک روز پس از اتصال اینترنت در پی ۸۸ روز قطعی سراسری در ایران صادر شده است.
+
+وزارت اطلاعات درباره «هرگونه اقدام برای شکستن انسجام ملی و ایجاد گسست اجتماعی، قاچاق سلاح و ابزارهای ارتباطی غیرقانونی همچون استارلینک» هشدار داده و گفته است که در ارتباط با این موضوعات «با دقت و قاطعیت هرچه بیشتر» عمل خواهد کرد.
+
+وزارت اطلاعات ایران اکنون از سوی سرپرست اداره می‌شود. اسماعیل خطیب، وزیر اطلاعات، در جریان حملات اسرائیل و آمریکا در تهران کشته شد.
+
+📷Getty Images
+https://bbc.in/4vinAKx
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390315
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390315_1779884027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سالنای آرایشگری زنونه این روزا این شکلی دارن تبلیغ میکنن:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امسال انگار سال سالِ کونه 🍑، چالش عجیب و کثافتی که این روزها تو اینستاگرام به شدت وایرال شده؛
+
+داستان ازاین قراره که؛ ملت کونشونو به شکل قلب درمیارن، ازش عکس میگیرن و تو اینستاگرام پست میکنن.
+
+این چالش درحال حاضر پر بازدید‌ترین چالش حالِ حاضر اینستاگرامه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390310
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390310_1779884028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی از روبیکا میای تلگرام:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390309
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390309_1779884028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه‌هایی که نبودید
+یه ژانر تو توییتر درست کردن به اسم «شیکم تخت» این بانو خیلی وایرال شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123050
+
+<div align="center">
+  <a href="telegram/content/alonews_123050_1779884028.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویر نشان می‌دهد که هواپیمای سوخت‌رسانی جدید نیروی هوایی اسرائیل، KC-46A Pegasus "Gideon" (301)، اندکی پیش در اسرائیل فرود آمد و ایال زمیر، رئیس ستاد کل ارتش اسرائیل، در مراسم استقبال حضور داشت. این هواپیما اولین فروند از شش فروند سفارش داده شده است و امکان سفارش دو فروند دیگر نیز وجود دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123049
+
+<div align="center">
+  <a href="telegram/content/alonews_123049_1779884029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلم دوربین مداربسته لحظه‌ای را نشان می‌دهد که جنگنده‌های اسرائیلی حملات هوایی به نبطیه در جنوب لبنان را انجام دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123048
+
+<div align="center">
+  <a href="telegram/content/alonews_123048_1779884031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده درباره محاصره: تا امروز، ۱۰۹ کشتی تجاری برای اطمینان از رعایت قوانین محاصره به سوی مسیر دیگر هدایت شده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123047
+
+<div align="center">
+  <a href="telegram/content/alonews_123047_1779884031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت امروز اینترنت بین الملل ایران از نگاه نت بلاکس
+
+
+🔴اینترنت هنوز به وضعیت ۱۰۰ درصدی بازنگشته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123046
+
+<div align="center">
+  <a href="telegram/content/alonews_123046_1779884032.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: به گفته منابع، احتمال دارد طی چند هفته یک توافق میان آمریکا و ایران حاصل شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 15:23
 ---
 
