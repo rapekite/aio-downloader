@@ -7,6 +7,197 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 15:13
+---
+
+## VahidOOnLine — post 242409
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242409_1779882190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الی کوهن، وزیر انرژی اسرائیل و عضو کابینه سیاسی-امنیتی این کشور، با اشاره به آنچه «برنامه‌های راهبردی» برای دور زدن تهدیدهای جمهوری اسلامی علیه مسیرهای تجاری خواند، گفت: «تمام نبرد ایران در تنگه هرمز و آن اهرم راهبردی که به کار می‌گیرد، در حال از بین رفتن است.»
+
+او افزود در روزهای اخیر گفت‌وگوهایی درباره ایجاد زیرساخت‌های انرژی از شرق به غرب در جریان است و هدف از این طرح‌ها، انتقال انرژی به اروپا از طریق اسرائیل عنوان شده است.
+
+کوهن همچنین از مذاکرات برای ایجاد خطوط انتقال انرژی از مسیر کشورهای خلیج فارس خبر داد و گفت کشورهایی مانند عربستان سعودی و امارات متحده عربی، به عنوان تولیدکنندگان مهم انرژی، تمایل دارند در این طرح‌های اقتصادی مشارکت کنند.
+
+به گفته وزیر انرژی اسرائیل، کریدور زیرساختی میان هند و اروپا از طریق کشورهای خلیج فارس و اسرائیل در دست بررسی است و استفاده از مسیر مصر نیز می‌تواند روند پیشبرد این طرح‌ها را تسریع کند. او تاکید کرد گفت‌وگوهای مشخصی در این زمینه در حال انجام است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12673
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12673_1779882191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیمان بستم و شب و روز بیدارم 
+👑
+@withyashar
+</div>
+
+## WithYashar — post 12672
+
+
+
+
+## DEJradio — post 5026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اسرائیل از حذف فرماندۀ تازۀ شاخۀ نظامی حماس در غزه خبر داد
+
+ارتش اسرائیل و شاباک اعلام کردند محمد عوده، فرماندۀ تازۀ شاخۀ نظامی حماس در غزه، در حملۀ هوایی شامگاه سه‌شنبه در شمال غزه کشته شد.
+به گفتۀ مقام‌های اسرائیلی، عوده پس از کشته شدن عزالدین حداد در هفتۀ پیشین، فرماندهی شاخۀ نظامی حماس را برعهده گرفته بود.
+ارتش اسرائیل اعلام کرد عوده از طراحان حملۀ تروریستی هفتم اکتبر بود.
+بنا بر گزارش ارتش اسرائیل، محمد عوده در جریان جنگ نیز عملیات اطلاعاتی و حملات علیه نیروهای اسرائیلی را هدایت می‌کرد.
+حماس که سال‌ها از پشتیبانی مالی و فکری جمهوری اسلامی برخوردار بود، در سیاهۀ تروریستی آمریکا و اروپا قرار دارد.
+رسانه‌های نزدیک به حماس مدعی شدند محمد عوده همراه با همسر و پسرانش کشته شده است.
+یسرائیل کاتز، وزیر دفاع اسرائیل نوشت: ما خود را متعهد کرده‌ایم همۀ کسانی را که کشتار هفتم اکتبر را رهبری کردند از میان برداریم.
+به گفتۀ کاتز، همه این افراد، در هر جا که باشند، نشان شده‌اند.
+
+#خبر #دژ #اسرائیل #حماس
+@DEJradio
+</div>
+
+## DEJradio — post 5025
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5025_1779882193.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 پاشنه آشیل جمهوری اسلامی؛ بحران مشروعیت برای هواداران
+
+*پژمان گلچین، پژوهشگر فلسفه
+
+#پاشنه_آشیل #جنگ
+@DEJradio
+</div>
+
+## mamlekate — post 103590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ به ایران فرصت صلح داد اما نمی‌تواند به حاکمان مذهبی‌اش اعتماد کند
+
+انتشار این خبر که دونالد ترامپ، رئيس‌جمهوری ایالات متحده، در اقدامی غیرمعمول، قرار است چهارشنبه با تمام اعضای کابینه خود جلسه داشته باشد، نشان می‌دهد او در حال بررسی راه‌هایی برای سرعت بخشیدن به مذاکرات به‌شدت کند و فرسایشی با جمهوری اسلامی ایران است.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الو چهارشنبه ساعت ۱۳:۰۰ واحد هوا پتروشیمی دماوند که توی جنگ روز ۱۷ فروردین نیروگاهشون مورد اصابت قرار گرفته بود دچار انفجار شد. حداقل ۱ نفر کشته و ۴ نفر مجروح شدن. دلیل انفجار هنوز معلوم نیست.
+
+@mamlekate
+</div>
+
+## Shin_Persian — post 6258
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6258_1779882194.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Wed, 27 May 2026 11:34:53 UTC #IDF 🇮🇱: "The first aircraft of its kind in the Air Force was inducted into the new refueling squadron - 'Gideon' The Chief of Staff at the induction ceremony: "The edifice of evil of the Ayatollah regime…
+</div>
+
+## Shin_Persian — post 6257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 27 May 2026 11:34:53 UTC
+
+#IDF 🇮🇱:
+"The first aircraft of its kind in the Air Force was inducted into the new refueling squadron - 'Gideon'
+
+The Chief of Staff at the induction ceremony: "The edifice of evil of the Ayatollah regime has cracked significantly and its future and stability are shrouded in fog. Its leaders are pursued, most of its military capabilities have been destroyed, the nuclear program has been set back years; its economy is collapsing and its citizens have not yet understood the magnitude of the disaster to which their extremist leaders have led them""
+#Iran
+
+فارسی
+
+#IDF 🇮🇱:
+"نخستین هواپیما از این نوع در نیروی هوایی به اسکادران جدید سوخت‌رسان - 'گیدئون' ملحق شد.
+
+رئیس ستاد کل نیروهای مسلح در مراسم الحاق: «بنای شرارت رژیم آیت‌الله‌ها به شدت ترک خورده و آینده و ثبات آن در هاله‌ای از ابهام است. رهبران آن تحت تعقیب هستند، اکثر توانمندی‌های نظامی‌اش نابود شده، برنامه هسته‌ای سال‌ها به عقب رانده شده؛ اقتصاد آن در حال فروپاشی است و شهروندانش هنوز ابعاد فاجعه‌ای را که رهبران افراطی‌شان آن‌ها را به سوی آن سوق داده‌اند، درک نکرده‌اند»"
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+## RadioFarda — post 157606
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157606" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ساعت ۱۴ با رادیوفردا، ششم خرداد ۱۴۰۵‌
+
+@Radiofarda
+</div>
+
+## IranianMinds — post 20868
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20868_1779882195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت فیلترشکن فروش‌ها بعد از وصل شدن نت بین‌الملل.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخوند حمید رسایی :
+
+قلبم به درد آمد وقتی دیدم پزشکیان اینترنت بین الملل را غیرقانونی وصل کرده است.
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پیام‌های مخاطبان بی‌بی‌سی بعد از اتصال اینترنت؛ «این مدت هیچکس غم مردم را نخورد»
+
+🔻تعدادی از مخاطبان بی‌بی‌سی پس از اتصال نسبی به اینترنت، از کیفیت و سرعت اتصال و نظراتشان درباره کمک جامعه جهانی به مردم ایران در ۸۸ روزی که اینترنت قطع بود، نوشتند.
+
+مخاطبی از اراک نوشت: «فیبر نوری دارم و الان وصل شدیم البته باز هم بدون فیلترشکن تلگرام وصل نمی‌شود. این مدت هیچکس غم مردم را نخورد. حیف این مردمی که این هزینه‌های سنگین برای آزادی پرداخت می‌کنند...افسوس.»یکی دیگر از مخاطبان نوشته است: «خیلی حرف‌ها دارم اما الان زمانش نیست چون خسته‌ام. حتی از اقوام درجه یک خودم که خارج کشور در رفاه بودند و من و زن و بچه‌ام زیر موشک.... دلم گرفته... بزودی خواهم گفت از تک تک روزهای لعنتی جنگ .»
+
+مخاطب دیگری که ۱۷ ساله است و در تهران زندگی می‌کند، نوشته است: «می‌خواستم یه چیزی بگم. واقعا خسته شدیم. از گرانی، از تحریم، از نت ضیف. کارها هم خوابیده. دیگه نمی‌توانم زندگی کنم.»
+
+تعدادی از مخاطبان گفته‌اند که اینترنت‌های خانگی وصل شده ولی هنوز اینترنت سیمکارت آنها کار نمی‌کند. چند مخاطب هم گفته‌اند که هنوز اینترنت ندارد و با همان روش‌های قبلی وصل‌ هستند.
+
+https://bbc.in/3PM26X5
+@BBCPersian
+</div>
+
+## alonews — post 123044
+
+<div align="center">
+  <a href="telegram/content/alonews_123044_1779882196.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروی دریایی سپاه: ۲۳ شناور تا این لحظه از تنگه هرمز عبور کرده‌اند و عبور شناورهای دیگر نیز تا ساعات آینده ادامه دارد.
+
+
+🔴عبور شناورهای کشورهای متخاصم از تنگه هرمز همچنان ممنوع است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 15:02
 ---
 
