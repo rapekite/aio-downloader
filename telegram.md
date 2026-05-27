@@ -7,6 +7,223 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 18:43
+---
+
+## VahidOOnLine — post 242442
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242442_1779894792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد‌ ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ششم خرداد در شبکه اجتماعی تروث سوشال با انتشار تصویری ساخته‌شده با هوش مصنوعی، از شبکه سی‌ان‌ان انتقاد کرد و نوشت این رسانه نیروی دریایی جمهوری اسلامی را قدرتمند نشان می‌دهد، در حالی که شناورهای ایران در اقیانوس غرق شده‌اند.
+
+در این تصویر، جمله «سی‌ان‌ان: نیروی دریایی ایران قدرتمند است» در کنار تصویری از شناورهای غرق‌شده جمهوری اسلامی در کف اقیانوس دیده می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242441
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242441_1779894793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید به الجزیره گفت دونالد ترامپ تنها توافقی را امضا می‌کند که در جهت منافع مردم آمریکا باشد.
+
+کاخ سفید افزود ترامپ فقط توافقی را خواهد پذیرفت که به‌طور قطعی تضمین کند جمهوری اسلامی هیچ سلاح هسته‌ای در اختیار نداشته باشد.
+
+به گفته کاخ سفید، ترامپ گفته است مذاکرات به‌خوبی پیش می‌رود و او خطوط قرمز خود را به‌روشنی مشخص کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9821
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز، شهرهای مهم جنوب لبنان یعنی صور و النبطیه با خطر اشغال مستقیم روبه‌رو هستند. نیروهای اسرائیلی به منطقه زوطر شرقی رسیده‌اند؛ تنها حدود پنج کیلومتر فاصله تا نبطیه وجود دارد، و هم‌زمان دستور تخلیه برای شهر صور صادر شده است.
+
+🔸دولت لبنان قصدی برای دفاع از شهرهای خود ندارد و تنها گزینه پیشِ رو را مذاکره می‌بیند؛ موضعی که از نظر نویسنده بزدلانه و بدون هیچ شرمی توصیف شده است. پهپادهای FPV حزب‌الله می‌توانند به نیروهای پیش‌روی اسرائیل خسارت وارد کنند، اما در همین سطح نیز قادر به متوقف کردن حمله نیستند. در همین حال، شرط ایران مبنی بر عدم هدف قرار دادن بیروت و ضاحیه در این لحظه عملاً به نمادی بدون اثر عملی تبدیل شده، آن هم در شرایطی که نتانیاهو به‌دنبال ایجاد واقعیت‌های جدید در زمین است.
+
+🔹بدون تردید، شمار بیشتری از سربازان اسرائیلی در خاک لبنان کشته خواهند شد و لبنان به باتلاقی خطرناک تبدیل می‌شود. اما در مقابل، بخش‌های بیشتری از خاک لبنان تحت اشغال قرار خواهد گرفت. روستاها طی ماه‌های گذشته به‌طور سیستماتیک ویران شده‌اند و اکنون نوبت شهرهاست.
+
+🔸کسانی که انتظار راه‌حلی سریع در میز مذاکرات دارند، باید از این توهم دست بردارند. و کسانی که منتظر حل بحران لبنان از طریق توافقات منطقه‌ای هستند نیز چیزی به دست نخواهند آورد. آنچه من می‌بینم فراتر از یک بحران است؛ یک تحول بنیادین و فراگیر است که ممکن است سال‌ها ادامه یابد—سال‌هایی نه معمولی، بلکه طولانی، فرسایشی و ویرانگر، بدون هیچ افق روشنی. الجزیره
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9820
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9820_1779894794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حساب رسمی تلگرام در پلتفرم X (توییتر سابق) به نظر می‌رسد هک شده باشد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://406d8436-0eb9-4eb2-84fb-960e076ffba6@162.159.38.183:2083?encryption=none&security=tls&sni=de.lezzatzone.ir&alpn=h2%2Chttp%2F1.1&fp=chrome&type=tcp&headerType=none#%40Glitch_Config
+
+نامحدود سرعت موشکی
+🚀
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟠کاخ سفید در توییتر به طور غیرمستقیم گزارش رسانه‌های دولتی جمهوری اسلامی تروریست درباره پیش‌نویس تفاهم‌نامه بین آمریکا و ج.ا را رد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339257
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339257_1779894795.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال همچنان پیگیر دریافت گزارش‌ها و ثبت رویدادها در جریان کشتار مردم ایران در اعتراضات دی‌ماه است. اطلاعات رسیده، جزییات جدیدی از کشته شدن جاویدنامان حمیدرضا حدادی و سپهر موسوی‌فر را روایت می‌کند.
+
+فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339256
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339256_1779894798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید به الجزیره گفت دونالد ترامپ تنها توافقی را امضا می‌کند که در جهت منافع مردم آمریکا باشد.
+
+کاخ سفید افزود ترامپ فقط توافقی را خواهد پذیرفت که به‌طور قطعی تضمین کند جمهوری اسلامی هیچ سلاح هسته‌ای در اختیار نداشته باشد.
+
+به گفته کاخ سفید، ترامپ گفته است مذاکرات به‌خوبی پیش می‌رود و او خطوط قرمز خود را به‌روشنی مشخص کرده است.
+https://iranintl.com/202605278178
+</div>
+
+## FarsiVOA — post 218811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حکم حبس یک وکیل به دلیل انتقاد از رهبران رژیم؛ فشار جمهوری اسلامی بر وکلا ادامه دارد
+
+◾️جمهوری اسلامی در ادامه روند فشار و ارعاب وکلای مستقل، یک عضو کانون وکلای استان آذربایجان شرقی را به ۳ سال حبس و یک وکیل ساکن قم را در دادگاه محاکمه کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/islamic-republic-s-pressure-on-independent-lawyers-convicted-prison-criticizing-regime-leaders/8154497.html
+</div>
+
+## FarsiVOA — post 218810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان صدای آمریکا با ارسال این ویدیو از تصمیم برای سقط جنین در سایه مشکلات معیشتی و اقتصادی گفته است.
+
+این شهروند اهل خوزستان می‌گوید بعد از جنگ اخیر، همسرش درپی تعدیل نیرو اخراج شده است و هیچ منبع درآمدی ندارند. در نتیجه آرزوی مادر و پدر شدن برای آنها ناتمام می‌ماند.
+
+این روایت دردناک نشان می‌دهد در سایه بی‌ثباتی اقتصادی و فشارهای مداوم، زندگی روزمره بسیاری از مردم به میدان مبارزه‌ای خاموش برای تأمین حداقل‌ها تبدیل شده است. روندی که روایتی از فشار اقتصادی، ناامیدی اجتماعی و تغییر عمیق سبک زندگی در ایران امروز است.
+</div>
+
+## Persian_Trend_Official — post 15131
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15131_1779894799.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹آغاز تخلیه شهر بزرگ صور در پی هشدار ارتش اسرائیل
+
+پس از هشدار تخلیه از سوی ارتش رژیم صهیونیستی برای ساکنان شهر بندری صور، ده‌ها هزار نفر شروع به حرکت به سمت مناطق شمالی کرده‌اند.
+
+.
+</div>
+
+## Persian_Trend_Official — post 15130
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15130_1779894802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇮🇱
+🆔 اسرائیل اولین هواپیمای سوخت‌رسان هوایی بوئینگ KC-46 پگاسوس را امروز از ایالات متحده دریافت کرده است.
+</div>
+
+## BBCPersian — post 282197
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282197_1779894805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حدود ۹۰ پهپاد در طول یک نمایش نور زمستانی محبوب از آسمان بندر دارلینگ سیدنی سقوط کردند و برخی‌شان در نزدیکی جمعیت به داخل آب افتادند.
+
+برگزارکنندگان جشنواره سه هفته‌ای سالانه «ویوید سیدنی» که شامل چیدمان‌های نوری بزرگ است، گفتند که نقص فنی در عصر دوشنبه به وقت محلی به دلیل «مشکلات فنی پیش‌بینی نشده» بوده و چندین نمایش آینده را لغو کرده‌اند.
+
+فیلم نمایش دوشنبه، ده‌ها پهپاد را در حالی که از آسمان شب سقوط می‌کردند نشان می‌داد.
+
+شرکت اسکای‌مجیک، شرکت بریتانیایی برگزارکننده این نمایش، تغییر در فرکانس رادیویی را دلیل این نقص دانست و گفت که هیچ یک از پهپادها خارج از مرزهای ایمنی سقوط نکرده‌اند.
+
+https://bbc.in/4tZCSCO
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390324
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390324_1779894808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی دوست داشتن عاغاشون رو حالت عرفانی روحانی نشون بدن ولی هرکاری میکنن مثه عقب افتاده‌ها میشه، خارشو گاییدم چقد کیری بود این بشر
+
+ساده زیست بود ولی عکاس شخصی داشت برای ریا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390323
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390323_1779894808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کدوم یکی از حالت‌های خوابیدن مورد علاقه‌تونه؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123080
+
+<div align="center">
+  <a href="telegram/content/alonews_123080_1779894809.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی،از رهبران بولشویک‌ها: از وقتی اینترنت وصل شده قلبم درد گرفته، یه لحظه‌ام نتونستم بخوابم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 18:33
 ---
 
