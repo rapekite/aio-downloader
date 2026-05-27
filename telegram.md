@@ -7,6 +7,98 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 10:12
+---
+
+## WithYashar — post 12625
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زنگنه، نماینده مجلس : آمریکا حق غنی‌سازی، حاکمیت ایران بر تنگه هرمز و رفع تحریم‌ها را پذیرفت
+@withyashar 🤣
+</div>
+
+## DW_Farsi — post 125178
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125178_1779864151.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 لیندسی گراهام: نقش پاکستان در مذاکرات بیش از حد مسئله‌ساز است
+
+لیندسی گراهام، سناتور جمهوری‌خواه آمریکا، با انتقاد از نقش پاکستان در تحولات اخیر خاورمیانه، گفته است که ایفای نقش میانجی از سوی اسلام‌آباد [در مذاکرات میان تهران و واشنگتن] "بیش از حد مسئله‌ساز" به نظر می‌رسد و خصومت این کشور با اسرائیل، سابقه‌ای طولانی دارد.
+
+او در پیامی در شبکه اجتماعی ایکس (توییتر سابق) نوشت: «غیرقابل انکار است که هواپیماهای نظامی ایران در پایگاه‌های هوایی پاکستان نگهداری می‌شوند.»
+
+او همچنین به اظهارات گذشته مقامات پاکستانی علیه اسرائیل اشاره کرد و آن‌ها را "نگران‌کننده" خواند.
+
+این سناتور جمهوری‌خواه در ادامه به سخنان پیشین وزیر دفاع پاکستان درباره توافق‌ ابراهیم اشاره کرد؛ توافقی که در سال‌های اخیر به عادی‌سازی روابط برخی کشورهای عربی با اسرائیل منجر شده است.
+
+گراهام نوشت اگرچه ویدیوی مربوط به اظهارات وزیر دفاع، پاکستان مربوط به حدود یک سال پیش است، اما به گفته او، "احتمالا این نگاه همچنان پابرجاست".
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 20854
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با تایید کشته شدن محمد عوده، حالا تمام فرماندهان ستاد کل قسام(حماس) در ماجرای عملیات طوفان الاقصی کشته شدن @IranianMinds
+</div>
+
+## IranianMinds — post 20853
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20853_1779864152.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با تایید کشته شدن محمد عوده، حالا تمام فرماندهان ستاد کل قسام(حماس) در ماجرای عملیات طوفان الاقصی کشته شدن
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390290
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390290_1779864152.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این دختره باحال حرف میرنه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390289
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390289_1779864153.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسراییل هیوم: رستم قاسمی با افشا تصویر خصوصی او توسط موساد اخراج شد و مدتی بعد مرد. او وزیر نفت دولت احمدی نژاد بود‌. وی از فرماندهان سپاه محسوب می شد که پولشویی می‌کرد‌. موساد بدون ترور او را به این روش حذف کرد
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122974
+
+<div align="center">
+  <a href="telegram/content/alonews_122974_1779864153.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: ایران ۱۰ ملوان هندی را پس از رایزنیهای دیپلماتیک آزاد کرد!
+
+
+🔴مقامات کشتیرانی هند اعلام کرده اند که ۱۰ ملوان هندی ساکن در یک نفتکش که از ژوئیه ۲۰۲۵ در ایران بازداشت شده بود، پس از «رایزنی دیپلماتیک مستمر» آزاد شده اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 10:02
 ---
 
